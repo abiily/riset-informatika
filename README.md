@@ -1,1 +1,4 @@
 # riset-informatika
+
+YWGDUUDWYGD
+JAHBCK
